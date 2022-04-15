@@ -5,7 +5,7 @@ _Heyla! It's **@Mel-Tiela** on the_ 🎤
 📚 A Management Graduate  
 💻 Now a Software Developer  
 🎯 With Mission to _[Empower with Codes](https://www.youtube.com/c/YesSheCodes)_   
-☁️ While buildng my stairway to settle in the ___Cloud___   
+☁️ While building my stairway to settle in the ___Cloud___   
 
 ---
 
